@@ -3,6 +3,6 @@
 
 Cela signifie que même les grandes personnes ont été dans l'ombre de leurs idôles. Si une opportunité se présente, on en doit pas la laisser passer, il faut la saisir, s'y accrocher de toutes nos forces.
 
-                                                                                                         - K3013
+  - K3013
                                                                                                            
-                                                                                                          petit créateur de contenu
+    petit créateur de contenu
